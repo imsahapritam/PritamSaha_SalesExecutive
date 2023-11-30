@@ -1,4 +1,5 @@
-# PritamSaha_SalesExecutive Statement of purpose
+# Pritam Saha_Sales Executive 
+# Statement of Purpose
 
 I am a versatile Support Coordinator, blending the realms of adept Data Analysis and seasoned Customer Service expertise. Proficient in handling customer inquiries via phone calls and the service cloud platform, I excel in resolving issues by clarifying complaints and skillfully determining their underlying causes. A master of perspective, I craft compelling solutions that bridge differing viewpoints. 💞️
 
