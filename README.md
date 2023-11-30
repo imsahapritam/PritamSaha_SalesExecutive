@@ -1,2 +1,6 @@
-# PritamSaha_SalesExecutive
-Statement of purpose: Why do you think that you are a good fit for this position? 
+# PritamSaha_SalesExecutive Statement of purpose
+
+I am a versatile Support Coordinator, blending the realms of adept Data Analysis and seasoned Customer Service expertise. Proficient in handling customer inquiries via phone calls and the service cloud platform, I excel in resolving issues by clarifying complaints and skillfully determining their underlying causes. A master of perspective, I craft compelling solutions that bridge differing viewpoints. 💞️
+
+
+✨ My background as a Data Analyst and Customer Service Specialist adds a unique layer to my skill set. I adeptly gather, organize, and model data, using computer productivity software to facilitate collaborative teamwork and strategic reporting. My prowess extends to Ethical Hacking and Penetration Testing. Beyond technical expertise, I excel in installation and troubleshooting of Windows, Mac, and Linux Operating Systems, as well as LAN connections, hardware, and software. With leadership experience in desktop and helpdesk support, I ensure efficient issue resolution and minimal disruptions. Meticulous monitoring, insightful reporting, and thorough documentation characterize my approach. As I step into the role of Support Coordinator, I infuse customer interactions with professionalism, empathy, and positivity. I foster collaborative peer relationships, amplify team contributions, and uphold a standard ofexcellence that marries data-driven precision with customer-centric finesse.I love building stuff :) ✨
